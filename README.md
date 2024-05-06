@@ -5,6 +5,7 @@
 - 📫 How to reach me WhatsApp (069)523-6443 or Email kaylasilver375@gmail.com
 - 😄 Pronouns: She her 
 - ⚡ Fun fact: I was born and raised in America but I now live in South Africa
+- I am a mother to one beautiful baby boy and am 26 years old.
 
 <!---
 FrontEndKay375/FrontEndKay375 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
